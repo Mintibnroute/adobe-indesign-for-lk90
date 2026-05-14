@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe InDesign for macOS action with Adobe InDesign for macOS top Action - export to SVG and batch processing. Featuring export to SVG and batch processing, it's
 
 
 
